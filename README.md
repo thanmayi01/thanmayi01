@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Full Stack Projects
 - 📫 How to reach me thanmayikondreddy@gmail.com
 - 😄 Pronouns: she/her/thanmayi
-- ⚡ Fun fact: (❁´◡`❁)
+- ⚡ Fun fact: I'm a MYTHOPHILE
 
 <!---
 thanmayi01/thanmayi01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
